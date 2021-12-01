@@ -17,4 +17,4 @@
 -  4.I am highly atheist , only when i want something  .
 -  5. Not a big fan of the Babu shona community hence happily single for last 4 years now (reality is something else) 
 -   6.I weigh 79 kilos in 2019 and then i took a resolution to take care of my weight and now i weigh 98 kilos , two away from my maiden century .  
--   7.I always wanted to be a farmer , buffalo and cow grazing is what i still love .
+-   
